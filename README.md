@@ -2,7 +2,7 @@
 
 ![download](https://user-images.githubusercontent.com/89406356/130741136-ec1f3340-cc15-4c32-bf4f-029fa94ce494.jpg)
 
-![download](https://user-images.githubusercontent.com/89406356/130741233-17b8345c-756b-4b4a-8236-9ec60b240bd7.jpg)
+![51VuNxxRvdL _AC_SX522_](https://user-images.githubusercontent.com/89406356/130741765-c92895f7-deb1-4b94-96b7-92c249ac54ba.jpg)
 
 ## Where are you from?
 
